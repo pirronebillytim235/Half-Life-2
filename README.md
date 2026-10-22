@@ -216,4 +216,4 @@ Half-Life 2 is available as a full free version with all features included and r
 Download Half-Life 2 today and immerse yourself in one of the most iconic gaming experiences of all time! Enjoy endless adventures with Gordon Freeman and discover why this game is a true classic.
 
 ---
-**Last updated:** 2026-10-22 05:43:28 UTC
+**Last updated:** 2026-10-22 11:05:28 UTC
